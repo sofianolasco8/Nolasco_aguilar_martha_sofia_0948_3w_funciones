@@ -72,6 +72,12 @@ ejerccio 19
 ![image](https://github.com/user-attachments/assets/338f1c2a-7704-4711-b835-f484e7c41b03)
 ![image](https://github.com/user-attachments/assets/0952d2c0-f28d-4016-8f2b-e1267f964ea8)
 
+ejercicio 20
+![image](https://github.com/user-attachments/assets/8a47542a-ed90-410c-ab9d-340b3fabf2dd)
+![image](https://github.com/user-attachments/assets/9bbb1c0c-488e-4413-92e6-fb12f595bbb9)
+
+
+
 
 
 
