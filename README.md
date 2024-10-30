@@ -68,6 +68,12 @@ ejercicio 18
 ![image](https://github.com/user-attachments/assets/6c131380-19ac-403c-bc5b-4dc574d49dc1)
 ![image](https://github.com/user-attachments/assets/51184184-19e1-44ad-8889-08339127a3df)
 
+ejerccio 19
+![image](https://github.com/user-attachments/assets/338f1c2a-7704-4711-b835-f484e7c41b03)
+![image](https://github.com/user-attachments/assets/0952d2c0-f28d-4016-8f2b-e1267f964ea8)
+
+
+
 
 
 
