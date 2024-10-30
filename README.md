@@ -29,6 +29,15 @@ practica 7
 ![image](https://github.com/user-attachments/assets/c210ea74-cf63-4e1a-bac0-5a06448b59b2)
 ![image](https://github.com/user-attachments/assets/8c52daab-7c53-4caf-9c94-11670cf410ab)
 
+ejercicio 9
+
+![image](https://github.com/user-attachments/assets/6d77f03c-1d94-4245-b067-206df849bc64)
+![image](https://github.com/user-attachments/assets/77a6dd48-0b9d-45c4-8663-28a5052f23f6)
+
+ejercicio 10
+
+
+
 
 
 
