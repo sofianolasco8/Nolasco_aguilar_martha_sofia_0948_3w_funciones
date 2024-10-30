@@ -51,6 +51,12 @@ ejercicio 13
 ![image](https://github.com/user-attachments/assets/f0bd857b-1fbb-4f17-9e87-59c335d7acd4)
 ![image](https://github.com/user-attachments/assets/8a562da5-bb00-4660-8273-7815b8bcf27b)
 
+ejercicio 14
+![image](https://github.com/user-attachments/assets/538c38c5-61b4-4abc-ad82-b9b04d9b9b35)
+![image](https://github.com/user-attachments/assets/ee4f6051-fcf3-4cb3-8f59-436b03d66da0)
+
+
+
 
 
 
