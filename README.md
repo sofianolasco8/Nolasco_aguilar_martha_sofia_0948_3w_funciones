@@ -59,6 +59,19 @@ ejecicio 16
 ![image](https://github.com/user-attachments/assets/3dfecbcb-827c-4939-9d51-5f2c177db2dc)
 ![image](https://github.com/user-attachments/assets/f291e3e6-e3b2-4577-9c3a-434eb33d3fbc)
 
+ejercicio 17
+
+![image](https://github.com/user-attachments/assets/48e3352f-97e2-454f-87e4-235290cb8d81)
+![image](https://github.com/user-attachments/assets/42be28ce-bef4-4f61-898d-26021f02e731)
+
+ejercicio 18
+![image](https://github.com/user-attachments/assets/6c131380-19ac-403c-bc5b-4dc574d49dc1)
+![image](https://github.com/user-attachments/assets/51184184-19e1-44ad-8889-08339127a3df)
+
+
+
+
+
 
 
 
