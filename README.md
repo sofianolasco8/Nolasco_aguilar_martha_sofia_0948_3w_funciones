@@ -25,6 +25,12 @@ ejercicio 6
 ![image](https://github.com/user-attachments/assets/68d96d1e-cc38-4dc9-bc7b-5909d00fe5db)
 ![image](https://github.com/user-attachments/assets/027207ef-c60b-42ac-8ca4-04e1d9379040)
 
+practica 7 
+![image](https://github.com/user-attachments/assets/c210ea74-cf63-4e1a-bac0-5a06448b59b2)
+![image](https://github.com/user-attachments/assets/8c52daab-7c53-4caf-9c94-11670cf410ab)
+
+
+
 
 
 
