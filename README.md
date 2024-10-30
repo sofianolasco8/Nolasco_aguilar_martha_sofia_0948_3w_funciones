@@ -36,6 +36,17 @@ ejercicio 9
 
 ejercicio 10
 
+![image](https://github.com/user-attachments/assets/c7557446-0045-48c6-bed5-d682b185aaa4)
+![image](https://github.com/user-attachments/assets/89c85058-4b2a-4c0e-ba9d-073254bc8ae9)
+
+ejercicio 11
+![image](https://github.com/user-attachments/assets/1ef61356-79c4-4743-9584-e2891baa0965)
+![image](https://github.com/user-attachments/assets/5f23f06e-8f51-4cf1-9994-efdf77302572)
+
+
+
+
+
 
 
 
